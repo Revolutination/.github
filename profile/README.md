@@ -1,8 +1,7 @@
-## Hi there 👋
+## Hi there, welcome to Revolutination DAO ( Decentralized Autonomous Organization )... 👋
 
 **Revolutination DAO ( Decentralized Autonomous Organization )**
 
-*Overview:*
 Revolutination is a cutting-edge Decentralized Autonomous Organization (DAO) at the forefront of the crypto revolution. Fueled by advanced technology and an unwavering commitment to decentralization, Revolutination is poised to redefine the financial landscape.
 
 *Mission:*
