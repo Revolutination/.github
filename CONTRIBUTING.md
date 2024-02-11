@@ -1,4 +1,4 @@
-# Contributing to [Your Project Name]
+# Contributing to Revolutination
 
 Thank you for considering contributing to our project! We welcome contributions from the community to make our project better.
 
