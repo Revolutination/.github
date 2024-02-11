@@ -1,4 +1,4 @@
-## Hi there, welcome to Revolutination DAO ( Decentralized Autonomous Organization )... 👋
+## Hi there, welcome to Revolutination DAO ( Decentralized Autonomous Organization ) 👋
 
 **Revolutination DAO ( Decentralized Autonomous Organization )**
 
